@@ -1,0 +1,1 @@
+# open_lesson_algoritmika_2023
